@@ -7,4 +7,4 @@
 - 💬 Ask me about anything and I would be delighted to interact with you! 
 - 📫 How to reach me: You can reach me @ my email: ashtleysilassandoval@gmail.com 
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I am still an 18 years old but already thinks like a tech-savvy woman developer/ softwer engineer. I love to keep learning and having fun!
+- ⚡ Fun fact: I am still 18 years old but already thinks like a tech-savvy woman developer/ softwer engineer. I don't see my age as an opportunity to grow and experience things more. I love to keep learning and having fun!
